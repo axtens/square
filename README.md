@@ -1,0 +1,1 @@
+## Shotwell Square Tagger
